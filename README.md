@@ -29,4 +29,4 @@
 #### For 5 days:
 ![img_9.png](img_9.png)
 
-### Thanks for interesting task
+### Thanks for interesting task!
